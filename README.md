@@ -14,16 +14,16 @@
 
 部分博文和吐槽可能还没有更新好~欢迎在评论区吐槽~
 
-- [【水野爱】ED+OP+PV](https://wu-kan.github.io/posts/mizuno-ai/ED+OP+PV)
-- [【水野爱】EP01](https://wu-kan.github.io/posts/mizuno-ai/EP01)
-- [【水野爱】EP02](https://wu-kan.github.io/posts/mizuno-ai/EP02)
+- [【水野爱】EP01](https://wu-kan.github.io/posts/mizuno-ai/EP01)【已截完】
+- [【水野爱】EP02](https://wu-kan.github.io/posts/mizuno-ai/EP02)【已截完】
 - [【水野爱】EP03](https://wu-kan.github.io/posts/mizuno-ai/EP03)
 - [【水野爱】EP04](https://wu-kan.github.io/posts/mizuno-ai/EP04)
 - [【水野爱】EP05](https://wu-kan.github.io/posts/mizuno-ai/EP05)
 - [【水野爱】EP06](https://wu-kan.github.io/posts/mizuno-ai/EP06)
-- [【水野爱】EP07](https://wu-kan.github.io/posts/mizuno-ai/EP07)
-- [【水野爱】EP08](https://wu-kan.github.io/posts/mizuno-ai/EP08)
+- [【水野爱】EP07](https://wu-kan.github.io/posts/mizuno-ai/EP07)【已截完】
+- [【水野爱】EP08](https://wu-kan.github.io/posts/mizuno-ai/EP08)【已截完】
 - [【水野爱】EP09](https://wu-kan.github.io/posts/mizuno-ai/EP09)
 - [【水野爱】EP10](https://wu-kan.github.io/posts/mizuno-ai/EP10)
 - [【水野爱】EP11](https://wu-kan.github.io/posts/mizuno-ai/EP11)
 - [【水野爱】EP12](https://wu-kan.github.io/posts/mizuno-ai/EP12)
+- [【水野爱】ED+OP+PV](https://wu-kan.github.io/posts/mizuno-ai/ED+OP+PV)【已截完】
